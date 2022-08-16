@@ -30,6 +30,9 @@ It looked to be over... It was not, trust me.. 1 month later the drama esculated
 
 August 15th 2022 in the evening, i got a ping in the WPI discord server with the following [message](https://cdn.discordapp.com/attachments/842511743220580432/1008999031550259210/unknown.png) then got banned from the server.
 
+#### I can confirm Cchris's alt is Rosé [proof](https://cdn.discordapp.com/attachments/1009084161098788876/1009093318396870666/unknown.png)
+)
+
 > "Waddle Legacy Clown Thing" lol what💀 (This was in the public chat AGAIN, very unprofessional. And also Club Penguin and Club Penguin Island are for kids and i know some server are 13+ but some are still meant for kids, why are you promoting swearing in a family friendly server?)
 
 They were still thinking i was the owner of Waddle Legacy wich i am not anymore since July 29th 2022.
