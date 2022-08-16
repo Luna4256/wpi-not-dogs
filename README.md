@@ -22,7 +22,7 @@ They were also saying i was stealing their discord logo
 
 Around the name change one of waddle legacy/newcpi moderator called "Cookie/Miles Tails Prowler (Yes thats their name on discord) was snitching the wpi discord after i found out, demoted them instantly. They got pissed and left.
 
-July 29th 2022 i gave ownership to someone else and they go by the name Ashley, for that day she owns and develops WL. [PROOF](https://cdn.discordapp.com/attachments/1009084161098788876/1009089755323060304/Screenshot_2022-08-16_15.22.12.png)
+July 29th 2022 i gave ownership to someone else and they go by the name Ashley, from that day on she now owns and develops WL. [PROOF](https://cdn.discordapp.com/attachments/1009084161098788876/1009089755323060304/Screenshot_2022-08-16_15.22.12.png)
 
 --
 
