@@ -1,7 +1,6 @@
 # Exposing WPI
-exposing the waddle penguin island dogs
 
-Before we begin im gonna be honest i aswell did something i really regret doing.
+#### Before we begin im gonna be honest i aswell did something i really regret doing.
 
 So its starts on Febuary 16th 2022, i got a dm from Cchris the owner of Waddle Penguin Island (Will be refered to WPI).
 He asked me to remove newcpi website for reasons, as soon as i removed the site i check back to the newcpi discord server and saw 1k+ pings and all the channels were gone.
@@ -38,4 +37,4 @@ Later on Boo0 found out a admin on wpi and owner of [cpatake](https://cpatake.ne
 When Boo0 saw this he said to me" I just snapped and went on a massive rant" [proof 1](https://cdn.discordapp.com/attachments/1009084161098788876/1009091314006106112/Screenshot_2022-08-16_at_10.44.11_1.png) | [proof 2](https://cdn.discordapp.com/attachments/1009084161098788876/1009091313704124527/Screenshot_2022-08-16_at_10.45.29_1.png) 
 
 Thats all for now, if the drama continues i will update this.
-# Last Updated: August 16th 2022 @ 13:31 UTC
+## Last Updated: August 16th 2022 @ 13:31 UTC
