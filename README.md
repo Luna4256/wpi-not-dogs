@@ -36,8 +36,8 @@ August 15th 2022 in the evening, i got a ping in the WPI discord server with the
 > "Waddle Legacy Clown Thing" lol what💀 (This was in the public chat AGAIN, very unprofessional. And also Club Penguin and Club Penguin Island are for kids and i know some server are 13+ but some are still meant for kids, why are you promoting swearing in a family friendly server?)
 
 They were still thinking i was the owner of Waddle Legacy wich i am not anymore since July 29th 2022.
-Later on Boo0 found out a admin on wpi and owner of [cpatake](https://cpatake.net/) and saw that they wanted to announce the drama on their social media and wanted to lawsuit me 💀 [proof](https://cdn.discordapp.com/attachments/1009084161098788876/1009091313452470343/Screenshot_2022-08-16_at_11.02.48.png)
+Later on Boo0 found out, boo0 is a admin on wpi and the owner of [cpatake](https://cpatake.net/) and saw that they wanted to announce the drama on their social media and wanted to lawsuit me 💀 [proof](https://cdn.discordapp.com/attachments/1009084161098788876/1009091313452470343/Screenshot_2022-08-16_at_11.02.48.png)
 When Boo0 saw this he said to me" I just snapped and went on a massive rant" [proof 1](https://cdn.discordapp.com/attachments/1009084161098788876/1009091314006106112/Screenshot_2022-08-16_at_10.44.11_1.png) | [proof 2](https://cdn.discordapp.com/attachments/1009084161098788876/1009091313704124527/Screenshot_2022-08-16_at_10.45.29_1.png) 
 
 Thats all for now, if the drama continues i will update this.
-## Last Updated: August 16th 2022 @ 13:31 UTC
+## Last Updated: August 16th 2022 @ 13:39 UTC
