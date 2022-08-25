@@ -1,6 +1,6 @@
 # Exposing WPI
 
-#### Before we begin im gonna be honest i aswell did something i really regret doing.
+#### Before we begin im gonna be honest i aswell did something i really regret doing AND this is not an apology.
 
 So its starts on Febuary 16th 2022, i got a dm from Cchris the owner of Waddle Penguin Island (Will be refered to WPI).
 He asked me to remove newcpi website for reasons, as soon as i removed the site i check back to the newcpi discord server and saw 1k+ pings and all the channels were gone.
