@@ -11,3 +11,7 @@ You were banned from WPI's server for a reason babes
 And btw there's no drama, you're making this drama on your own <3
 
 Anyways, stop accusing people without good proof and stop trying to make a CPIPS when you don't have any knowledge in reverse engineering <3
+
+## Update 😝😝😝
+
+CAPTAINQ DELETED HIS GITHUB REPO CONTAINING THE "PROOFS" AND EVERYTHING LMAOAOAO
